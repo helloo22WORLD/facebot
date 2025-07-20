@@ -21,3 +21,6 @@
 طب هلاقي فين بوستات او صفحات بيصيحو فيها 
 
 اتفضل https://www.facebook.com/YosHaddad 
+
+
+![screen](https://github.com/helloo22WORLD/facebot/blob/main/face%20repo/Screenshot%202025-07-20%20234353.png)
